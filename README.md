@@ -1,2 +1,2 @@
 # Kimiafarma
-Fakultas Kedoktera Dengan Akreditas Terbaik No 1 di Indonesia
+Fakultas Kedokteran Dengan Akreditas Terbaik No 1 di Indonesia
